@@ -10,3 +10,5 @@ CloZee - Electric Forest Set (2018) https://soundcloud.com/clozee/youredm-premie
 
 G Jones - Time (2018)
 
+Getter - Visceral Album (2018)
+
