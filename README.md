@@ -22,3 +22,4 @@ Rock Bottom - Caspa and Rusko https://www.youtube.com/watch?v=_e79AFVo3Gk
 
 Purity Ring - Another Eternity (Album) (2015)
 
+Def Leppard - Gods of War (1987)
