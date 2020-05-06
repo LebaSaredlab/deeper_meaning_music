@@ -25,3 +25,6 @@ Purity Ring - Another Eternity (Album) (2015)
 Def Leppard - Gods of War (1987)
 
 Big Mountain - Baby I love your way (1994)
+
+Quarterflash - Harden My Heart (1981)
+
