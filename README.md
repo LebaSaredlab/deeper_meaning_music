@@ -28,3 +28,14 @@ Big Mountain - Baby I love your way (1994)
 
 Quarterflash - Harden My Heart (1981)
 
+Fleetwood Mac - Dreams (Gigamesh Edit)(2013)
+
+Earth, Wind, & Fire - September (Zanski Remix)(2014)
+
+Kool & The Gang - Celebration (1980)
+
+The Police - Every Breath You Take (Deep Chills Remix)(2015)
+
+The Midnight - Days of Thunder / Gloria (2014)
+
+
